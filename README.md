@@ -8,4 +8,4 @@ I like games such as:
 I'm currently working on mods for Balatro and Pizza Tower and some Original Games, as of currently none of these were released publically.
 
 My pronouns are he/him\
-You can contact me at: nestomiau1andcats@gmail.com\
+You can contact me at: nestomiau1andcats@gmail.com
