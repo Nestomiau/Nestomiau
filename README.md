@@ -1,7 +1,7 @@
 Hello, I'm Arroz Felino(also known as @Nestomiau) a young brazilian programmer that likes to modify and create games.\
 I like games such as:
 - Balatro
-- Pizza Tower
+- Bloons TD 6
 - Antonblast
 - Rainworld
 
