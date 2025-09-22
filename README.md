@@ -1,4 +1,4 @@
-Hello, I'm Arroz Felino(also known as @Nestomiau) a young brazilian programmer that likes to modify and create games.\
+Hello, I'm Arroz Felino(also known as Nestomiau) a young brazilian programmer that likes to modify and create games.\
 I like games such as:
 - Balatro
 - Bloons TD 6
